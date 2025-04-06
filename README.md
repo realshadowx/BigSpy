@@ -4,7 +4,8 @@ Looking for the best deals on BigSpy? You’ve come to the right place! Whether 
 
 In this article, you can find the latest [BigSpy coupon codes](https://bigspy.com/?fpr=shadow) and save 50%.
 
-[![423110194-20776781-fad3-4af3-9d5e-123c30628bd8](https://github.com/user-attachments/assets/3ca1384a-19e0-4e3d-9e9f-5e9dc3315dd6)](https://bigspy.com/?fpr=shadow)
+[![BigSpy-Pricing-04-06-2025_09_19_AM](https://github.com/user-attachments/assets/57aa2ecc-66b8-4b86-b136-297c01bf9eba)](https://bigspy.com/?fpr=shadow)
+
 
 ## 30% Off BigSpy Annual Plans
 
